@@ -1,0 +1,5 @@
+- 👋 Hi, I’m SajaD
+- 👀 I’m a Product Designer & UX Researcher
+- 🌱 I’m currently Running Projects to run a unicorn company
+- 💞️ I’m looking to collaborate on any game-changer ideas
+- 📫 reach me on sajad.rudbari at gmail dot com 
